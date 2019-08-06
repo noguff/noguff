@@ -16,7 +16,7 @@ Smaller runs under 500 pieces can include:
 - metallic inks
 - white and opaque inks
 
-Learn how to proceed with your project by getting in touch.
+Get help with your project. Get in touch!
 
 email: noguffstudio@gmail.com
 
