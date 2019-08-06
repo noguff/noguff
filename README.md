@@ -12,8 +12,8 @@ All work produced by hand with non-toxic, water based inks in Hamilton Ontario C
 
 Screen printed flat stock offers a distinct look and feel.
 Smaller runs under 500 pieces can include:
-- fine coloured heavyweight card stock
-- rich, brilliant colours 
+- coloured heavyweight card stock
+- rich, brilliant ink colours 
 - transparent, overlapping inks
 - metallic inks
 - white and opaque inks
