@@ -20,7 +20,7 @@ Smaller runs under 500 pieces can include:
 
 Have a project in mind? Get in touch!
 
-email: noguffstudio@gmail.com
+email: jason@noguffstudio.com
 
 phone: 905-719-6898
 
